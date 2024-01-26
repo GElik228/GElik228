@@ -1,0 +1,7 @@
+- 👋 Хэло, I’m @GElik228
+- 👀 I’m interested in programming?..
+- 🌱 I’m currently learning NOTHING
+- 💞️ I’m looking to collaborate on too NOTHING 
+- 📫 How to reach me MY IP IS: [hyperlink blocked] (OMG it's a reference)
+- 😄 Pronouns: ГЭЛИКДВАДВАВОСЕМЬ
+- ⚡ Fun fact: I can type
